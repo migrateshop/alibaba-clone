@@ -64,7 +64,7 @@ Unlock the full potential of e-commerce with **[Migrateshop’s](https://migrate
 
 Get in touch with us today to discover more about our Alibaba Clone Script.
 
-Start your e-commerce now - **https://migrateshop.com/alibaba-clone/**
+Start your e-commerce now with our **LIVE DEMO** - **https://migrateshop.com/alibaba-clone/#demo**
 
 
 **Contact us,** 
